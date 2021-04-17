@@ -2,7 +2,7 @@
 - 👀 I’m interested in UI - UX designing.
 - 🌱 I’m constantly learning and enhancing my skills in UI/UX
 - 💞️ I’m looking for freelance projects.
-- 📫 You can see my work me:
+- 📫 You can see my work:
 - Linkedin: @Mehul Varshney : https://in.linkedin.com/in/mehul-varshney-2571b3180
 - Instagram/Facebook: @mehul.designs : https://www.instagram.com/mehul.designs
 - Behance: @Mehulvarshneydesigns : https://www.behance.net/mehulvarshneydesigns
