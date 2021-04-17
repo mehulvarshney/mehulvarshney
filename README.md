@@ -4,7 +4,9 @@
 - 💞️ I’m looking for freelance projects.
 - 📫 You can reach me:
 Linkedin: @Mehul Varshney : https://in.linkedin.com/in/mehul-varshney-2571b3180
+
 Instagram/Facebook: @mehul.designs : https://www.instagram.com/mehul.designs
+
 Behance: @Mehulvarshneydesigns : https://www.behance.net/mehulvarshneydesigns
 
 <!---
