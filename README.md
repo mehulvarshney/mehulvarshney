@@ -5,7 +5,7 @@
 - 📫 You can reach me:
 Linkedin: @Mehul Varshney : https://in.linkedin.com/in/mehul-varshney-2571b3180
 Instagram/Facebook: @mehul.designs : https://www.instagram.com/mehul.designs
-Behnace: @Mehulvarshneydesigns : https://www.behance.net/mehulvarshneydesigns
+Behance: @Mehulvarshneydesigns : https://www.behance.net/mehulvarshneydesigns
 
 <!---
 mehulvarshney/mehulvarshney is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
